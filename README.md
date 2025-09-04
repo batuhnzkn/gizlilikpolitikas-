@@ -1,0 +1,2 @@
+# gizlilikpolitikas-
+googleplaygizlilikpolitikası
